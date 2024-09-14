@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ashwin.2k3@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1c8NfEo4wzLfEyGPx-xdFkULfLl69XugZ/view?usp=sharing](https://drive.google.com/file/d/1c8NfEo4wzLfEyGPx-xdFkULfLl69XugZ/view?usp=sharing)
+- 📄 Know about my experiences [https://ashwin2k3.github.io/CurrentResume/Ashwin-resume.pdf](https://ashwin2k3.github.io/CurrentResume/Ashwin-resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
